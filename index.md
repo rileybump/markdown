@@ -4,10 +4,10 @@ Please join me and Margaret for our annual party celebrating that November is he
 
 ## What We Will Do
 
--Partay!
--Watch Olivia Rodrigo's Netflix special
--Eat pizza
--TP the neighbors' house
+- Partay!
+- Watch Olivia Rodrigo's Netflix special
+- Eat pizza
+- TP the neighbors' house
 
 ## Where Will It Be?
 
